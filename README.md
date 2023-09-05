@@ -1,5 +1,6 @@
 Hello
-Estudante no colpegio estadual branca da mota fernandes;
+
+Estudante no colegio estadual branca da mota fernandes;
 estou estudando por meio da alura;
 estou me desenvolvendo na linguagem scratch e javascript
 
