@@ -2,16 +2,22 @@
                    (˚ˎ 。7  
                    |、˜〵          
                    じしˍ,)ノ
+    ｡･:*:･ﾟ★,｡･:*:･ﾟ☆　　 ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
 
-Estudante no colegio estadual branca da mota fernandes;
 
-estou estudando por meio da alura;
 
-estou me desenvolvendo na linguagem scratch e javascript
+/ᐠ｡ꞈ｡ᐟ\ Estudante no colegio estadual branca da mota fernandes; 
 
-Utilizo esse espaço para minha organização e compoartilhamento dos meus projetos desenvolvidos na disciplina de pensamento computacional
 
-você pode entrar em contato comigo : bianca.costa.viana@escola.pr.gov.br
+-ˏˋ⋆ ̥estou estudando por meio da alura ̣̮ ̥ ⋆ˊˎ-
+
+
+-ˏˋ⋆ ̥estou me desenvolvendo na linguagem scratch e javascript ̣̮ ̥ ⋆ˊˎ-
+
+
+-ˏˋ⋆ ̥Utilizo esse espaço para minha organização e compoartilhamento dos meus projetos desenvolvidos na disciplina de pensamento computacional ̣̮ ̥ ⋆ˊˎ-
+
+
+-ˏˋ⋆ ̥você pode entrar em contato comigo : bianca.costa.viana@escola.pr.gov.br  ̣̮ ̥ ⋆ˊˎ-
 
 ![](https://media.tenor.com/Sw-HBO6KIdAAAAAC/omori.gif)
-
